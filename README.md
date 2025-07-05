@@ -72,7 +72,7 @@ Pour publier :
 - ✉️ joyxdesign@gmail.com  
 - 🌐 [LinkedIn](https://linkedin.com/in/joyxdesign)  
 - 📷 [Instagram](https://instagram.com/joyxdesig)  
-- 🧾 [Behance](https://behance.net/joyxdesign)
+- 🧾 [ComeUp](https://Comeup.com/joyxdesign)
 
 ---
 
